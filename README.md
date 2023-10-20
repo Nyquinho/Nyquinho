@@ -1,16 +1,18 @@
-### Hi there 👋
+### boas vindas ao meu perfil 🤍
 
-<!--
-**Nyquinho/Nyquinho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é nycollas miguel
 
-Here are some ideas to get you started:
+-estou estudando na [alura](https://www.com.br)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-sou novo no site 
+
+
+### você pode entrar em contato comigo 📫
+
+nycollas.luz@escola.pr.gov.br
+
+![](https://media.tenor.com/3W8GBKL_fsEAAAAC/equestrian-horse.gif)
+
+![](https://media.tenor.com/I078rz8XaEYAAAAd/criminal-offense-side-eye-side-eye.gif)**eo pix nada ainda?**
+
+![](https://media.tenor.com/IKo-c45o9XUAAAAC/horror-gif.gif)
