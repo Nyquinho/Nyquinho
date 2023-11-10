@@ -23,3 +23,5 @@ nycollas.luz@escola.pr.gov.br
 
 [o dinossauro que não tinha pai](https://youtube.com/shorts/QsR_xe0z3bM?si=QCLbOA5XrSgNF4jx)
 
+[jacare baitola](https://youtu.be/XwfW8ZHLzGM?si=wYd2-C07z9G4TxJ8)
+
