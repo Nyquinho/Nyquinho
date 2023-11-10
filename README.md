@@ -17,4 +17,7 @@ nycollas.luz@escola.pr.gov.br
 
 ![](https://media.tenor.com/IKo-c45o9XUAAAAC/horror-gif.gif)
 
-![](https://tenor.com/pt-BR/view/funny-memes-gif-25281076)
+![](https://media.tenor.com/S8CAKrLDMBcAAAAC/simba-lion-king-simba.gif)
+
+![](https://media.tenor.com/LaqeWOHvL2UAAAAC/kastike-kastikepussukka.gif)
+
