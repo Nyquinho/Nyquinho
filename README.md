@@ -21,3 +21,5 @@ nycollas.luz@escola.pr.gov.br
 
 ![](https://media.tenor.com/LaqeWOHvL2UAAAAC/kastike-kastikepussukka.gif)
 
+[o dinossauro que não tinha pai](https://youtube.com/shorts/QsR_xe0z3bM?si=QCLbOA5XrSgNF4jx)
+
